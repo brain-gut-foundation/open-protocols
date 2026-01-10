@@ -5,6 +5,14 @@
 **Target Duration:** ~20–25 Minutes
 **Goal:** Introduce specific gut-directed imagery; normalize motility using flow metaphors.
 
+## Notes
+
+The "Pivot": Section 3 (Solar Plexus) serves as the bridge. We move from the "Whole Body" (Session 1) to the "Center" (Session 2) using warmth as the entry vector.
+
+The Metaphor: The River is the canonical functional metaphor. It works because it describes mechanics (flow, speed, resistance) rather than magic.
+
+The Instruction: Notice the phrase "You do not need to push the water." This targets the hyper-vigilance common in IBS patients (constantly "checking" their gut).
+
 ---
 
 ## 0. Preparation
