@@ -4,6 +4,7 @@
 **Version:** 1.0.0
 **Target Duration:** ~20 Minutes
 **Goal:** Create a physical trigger for the relaxation response using the "Hand-on-Stomach" technique.
+**Key Clinical Feature:** By physically pairing a gesture (hand on stomach) with the trance state, we create a Pavlovian response. Later, when the patient is out in the world and feels pain, they can place their hand on their stomach to trigger an automatic drop in visceral sensitivity.
 
 ## Notes
 
