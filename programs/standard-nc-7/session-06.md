@@ -114,6 +114,7 @@ You have rehearsed it. You are ready.
 
 ## 8. Re-Alerting
 
+**[IF WAKE MODE]:**
 Coming back now from the timeline.
 Returning to the present moment, bringing that confidence back with you.
 **1.** Feeling your body in the chair.
@@ -121,3 +122,14 @@ Returning to the present moment, bringing that confidence back with you.
 **3.** Wiggling fingers and toes.
 **4.** Stretching the arms.
 **5.** Open your eyes. Ready for your life.
+
+**[IF SLEEP MODE]:**
+You do not need to come back to the present moment right now.
+You can stay out there, floating in those good feelings.
+Letting the timeline simply fade into a pleasant mist.
+
+The future looks bright and safe.
+The present is comfortable and warm.
+There is nothing to do but drift.
+Floating down...
+Goodnight.
