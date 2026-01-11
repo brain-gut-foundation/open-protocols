@@ -111,19 +111,39 @@ This is your new normal: A quiet gut. A silent background.
 
 ## 7. Post-Hypnotic Suggestion
 
+**[IF WAKE MODE]:**
 When you open your eyes, this filter remains in place.
-You will go about your days with this "noise-canceling" effect active.
+You will go about your day with this "noise-canceling" effect active.
 You will find that you simply don't notice your stomach as much.
 It does its work quietly, in the background, while you focus on the things you enjoy.
 The volume is down, and it stays down.
 
-## 8. Re-Alerting
+**[IF SLEEP MODE]:**
+As you drift into sleep, this filter remains in place.
+You do not need to watch the dial. It is locked in the "Comfort" position.
+You can trust your brain to maintain this "noise-canceling" effect throughout the night.
+Because the volume is down, your sleep will be deep, undisturbed, and restorative.
+The system is automated. You are free to rest.
 
+## 8. Re-Alerting / Transition
+
+**[IF WAKE MODE]:**
 It is time to return, leaving the settings exactly as you have calibrated them.
 Stepping back into the elevator.
-Going up.
+
+Pressing the button for the top floor. Going up.
 **1.**
-**2.** Feeling energy and lightness.
+**2.** Feeling energy and lightness returning to your limbs.
 **3.**
-**4.** Taking a deep breath.
+**4.** Taking a deep, energizing breath.
 **5.** Open your eyes. Wide awake.
+
+**[IF SLEEP MODE]:**
+It is time to rest, leaving the settings exactly as you have calibrated them.
+You do not need to take the elevator back up.
+You can simply step out of the Control Room into a quiet, comfortable space of rest.
+The lights in the control room dim, but the machines keep running perfectly.
+Drifting away from the panel...
+Deeper into your own comfort...
+Letting the mind turn off.
+Goodnight.
