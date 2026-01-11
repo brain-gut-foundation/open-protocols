@@ -111,8 +111,9 @@ Every week that passes, the old patterns fade further into the past.
 The new patterns of comfort, flow, and confidence become your automatic reality.
 You are healthy. You are capable. You are free.
 
-## 7. Re-Alerting (The Graduation)
+## 7. Re-Alerting / Transition
 
+**[IF WAKE MODE]:**
 It is time to come back to the room, ready to move forward with your life.
 I will count from 1 to 5 for the final time in this series.
 **1.** Feeling solid and grounded.
@@ -122,3 +123,16 @@ I will count from 1 to 5 for the final time in this series.
 **5.** Open your eyes.
 
 *Welcome back. You have completed the protocol.*
+
+**[IF SLEEP MODE]:**
+You have reached the end of the training.
+You do not need to count up. You do not need to wake.
+You have crossed the finish line.
+
+You can simply let go of the toolkit now. It is stored safely in your mind.
+You have done the work. You have earned this rest.
+Drifting down into a deep, celebratory sleep.
+Healthy. Independent. Free.
+Goodnight.
+
+
