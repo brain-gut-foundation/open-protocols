@@ -8,21 +8,21 @@
 ---
 
 ## 0. Preparation
-*Ensure you are in a comfortable chair or bed where your head is supported. Uncross your legs and allow your hands to rest loosely in your lap or at your sides.*
+Sit down on a comfortable chair, or lie down on the bed with your eyes open. 
 
 ## 1. Induction (Eye Fixation & Breathing)
 
-Fix your eyes on a spot on the wall or ceiling. Keep your eyes fixed on that one spot. Do not look away.
+Look at a spot on the wall or the ceiling. Keep your eyes fixed on that one spot. Do not look away.
 
 Take a deep breath in... filling the lungs completely.
 And breathe out slowly... letting the air flow out.
 
 Take another deep breath in...
-And as you breathe out, let your eyelids become heavy. So heavy that they want to close.
-Just let them close now. That’s right.
+And as you breathe out, let your eyelids become heavy. So heavy, that they want to close.
+Let them close now. That’s right.
 
 Let your eyes rest comfortably behind your closed eyelids. You are beginning to turn your attention inward.
-Exclude the outside world. The noises outside are not important. You are focusing only on the sound of my voice and the feeling of relaxation beginning to develop in your body.
+Exclude the outside world. The noises outside are not important. You are focusing only on the sound of my voice, and the feeling of relaxation beginning to develop in your body.
 
 ## 2. Progressive Muscle Relaxation (PMR)
 
