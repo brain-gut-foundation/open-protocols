@@ -48,11 +48,6 @@ This is the center of your nervous system in the body.
 Imagine a gentle source of warmth in this area.
 Like a small, comforting sun, or a warm heating pad resting on the upper stomach.
 
-
-
-[Image of human digestive system anatomy]
-
-
 Feel this warmth radiating outward.
 Spreading down into the abdomen.
 Soothing the muscles.
