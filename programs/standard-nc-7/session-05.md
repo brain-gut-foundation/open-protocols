@@ -98,14 +98,23 @@ The illness is shrinking into the background, becoming smaller and less signific
 
 ## 7. Post-Hypnotic Suggestion
 
+**[IF WAKE MODE]:**
 When you open your eyes, you will carry this "Driver's Mindset" with you.
 When you make decisions about food, or travel, or work, you will make them as the Driver.
 Not out of fear, but out of confidence.
 You trust your ability to handle whatever comes up.
 You are in charge.
 
-## 8. Re-Alerting
+**[IF SLEEP MODE]:**
+As you drift into sleep, this "Driver's Mindset" settles deep into your subconscious.
+You know that a good driver rests so they can be alert for the journey tomorrow.
+You can trust your ability to handle whatever comes up.
+But for now, there are no decisions to make.
+You are in charge, and you are choosing to rest.
 
+## 8. Re-Alerting / Transition
+
+**[IF WAKE MODE]:**
 Bringing the car to a smooth stop.
 Turning off the engine, feeling satisfied with the journey.
 **1.** Returning to the room.
@@ -113,3 +122,14 @@ Turning off the engine, feeling satisfied with the journey.
 **3.** Taking a deep, confident breath.
 **4.** Shoulders back, head high.
 **5.** Open your eyes. Ready to drive.
+
+**[IF SLEEP MODE]:**
+Bringing the car to a smooth stop in a safe, quiet garage.
+Turning off the engine.
+The journey is over for today.
+You can put the keys away. The vehicle is safe.
+The driver is safe.
+Letting the body sink into the comfort of the seat...
+Drifting away from the road...
+into a deep, well-deserved sleep.
+Goodnight.
