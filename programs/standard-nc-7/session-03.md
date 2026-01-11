@@ -101,14 +101,12 @@ Your body will instantly recall this state of deep relaxation.
 The muscles will relax. The sensations will fade.
 You carry this relief with you everywhere you go. It is literally in your hands.
 
-## 8. Re-Alerting
+## 8. Re-Alerting/Sleeping
 
-Now, you can slowly return your hand to its resting position at your side.
-Take a deep breath, locking in this new ability.
+[IF WAKE MODE]: Now, you can slowly return your hand to its resting position at your side. Take a deep breath, locking in this new ability.
 
-I will count from 1 to 5.
-**1.** Feeling the energy returning.
-**2.** Wiggling your fingers, remembering the power they hold.
-**3.** Shoulders moving.
-**4.** Head clearing, feeling empowered and strong.
-**5.** Eyes open. Wide awake.
+I will count from 1 to 5. 1. Feeling the energy returning. 2. Wiggling your fingers, remembering the power they hold. 3. Shoulders moving. 4. Head clearing, feeling empowered and strong. 5. Eyes open. Wide awake.
+
+[IF SLEEP MODE]: If your hand is still resting on your stomach, you can simply let it slide down to the bed... or leave it where it is. Whatever feels most natural for sleep. Your arm is heavy. Your body is heavy.
+
+I am going to stop talking in a moment. The anchor is now set in your mind. You do not need the physical touch anymore tonight. Just drifting... Letting the hand relax. Letting the mind relax. Resting safely in this comfort. Goodnight.
