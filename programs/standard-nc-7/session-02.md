@@ -109,6 +109,13 @@ Your digestive system will continue to operate with this new, smooth rhythm.
 You will find yourself paying less attention to your stomach.
 You will trust your body to handle the digestion, while you focus on your life.
 
+## 6. Post-Hypnotic Suggestion (Bedtime version, replace with the above for bedtime)
+As you drift deeper into rest, this sense of flow will continue.
+Your digestive system will continue to operate with this new, smooth rhythm **throughout the night**.
+You do not need to monitor it. Your subconscious mind will handle the digestion while you sleep.
+And when you wake up tomorrow morning, you will feel that trust in your body has grown stronger.
+Ready to focus on your life, refreshed and calm.
+
 ## 7. Re-Alerting
 
 In a moment, I will count from 1 to 5.
@@ -117,3 +124,25 @@ In a moment, I will count from 1 to 5.
 **3.** Wiggling your fingers and toes.
 **4.** Shoulders moving, head clearing.
 **5.** Eyes open. Wide awake and refreshed.
+
+---------------
+
+## 7. Sleep Outro (Replace with the above for a bedtime version)
+
+You have done the work. The message has been received.
+And now, there is nothing left for you to do.
+You do not need to wake up. You do not need to move.
+
+Let the images we discussed simply fade into a pleasant background feeling.
+Your body knows how to continue this healing process while you sleep.
+
+Even as your conscious mind drifts away, your deeper mind stays on duty.
+Monitoring the flow. keeping the dial turned down.
+Protecting your comfort throughout the night.
+
+I am going to stop talking in a moment.
+And when I do, you will simply continue to drift.
+Drifting down from this state of relaxation... into a natural, restorative sleep.
+Heavy. Comfortable. Safe.
+Allowing the body to rest completely.
+Goodnight.
